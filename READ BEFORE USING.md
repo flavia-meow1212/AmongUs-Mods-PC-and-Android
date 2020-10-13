@@ -2,7 +2,8 @@
 The following files have Among Us hacked and a mod menu for among us
 
 For support join: https://discord.gg/n3VaKh8
-I DID NOT MAKE THIS I AM ONLY HOSTING IT
+
+I DID NOT MAKE THIS HACK! I AM ONLY HOSTING IT!
 
 This among us is cracked, I am not making any profit off this.
 The mod menu that is included in the file is a Trojan so dont be scared if your anti virus says that.
